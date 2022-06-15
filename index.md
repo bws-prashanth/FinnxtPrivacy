@@ -1,4 +1,4 @@
-                                                            ##TERMS OF USE OF OUR SERVICE
+## TERMS OF USE OF OUR SERVICE
 
 
 By visiting or registering with us, you are agreeing to the following terms and conditions. We may alter or change these terms and conditions at any time. Your continued use of Finnxt platform means you accept any new or modified terms and conditions that we come up with. Please re-visit the `Terms of Use’ link at our app from time to time to stay abreast of any changes that we may introduce.
